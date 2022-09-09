@@ -4,9 +4,9 @@
 ### My contact info:
 
 * Phone: +79646333332
-* E-mail: yusup.ozdoyev@mail.ru
-* GitHub: YusupOzdoyev
-* Discord: Yusup Ozdoyev#7876
+* E-mail: [yusup.ozdoyev@mail.ru](http://yusup.ozdoyev@mail.ru)
+* GitHub: [YusupOzdoyev](https://github.com/YusupOzdoyev)
+* Discord: [Yusup Ozdoyev#7876](https://discord.com/users/Yusup%20Ozdoyev#7876)
 
 ### About me:
 
